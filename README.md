@@ -6,7 +6,7 @@
 ![Trường Đại học Công nghệ Thông tin | University of Information Technology](https://i.imgur.com/WmMnSRt.png)
 
 **Giáo viên hướng dẫn**:
-ThS. Huỳnh Hồ Thị Mộng Trinh.
+ThS. Hồ Huỳnh Thị Mộng Trinh.
 
 ## Thành viên nhóm
 
